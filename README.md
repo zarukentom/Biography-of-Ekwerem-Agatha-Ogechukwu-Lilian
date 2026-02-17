@@ -2,7 +2,7 @@
 Ekwerem Agatha Ogechukwu Lilian (also referred to as Lilian O. Ekwerem) is a Nigerian writer, missionary, caregiver, and emerging spiritual and educational contributor within the GOA CS-VM Digital Nation and the God of Armies Prayer Community. She is recognized as a pioneering African voice in the movement and a model of service, intellectual growth, and faith-driven humanitarian commitment.
 
 Early Life and Family Background
-Ekwerem Agatha Ogechukwu Lilian was born on October 24, 2001, in Enugu State, Nigeria, into the respected family of Mr. Christian Ekwerem, popularly known as Ozo Igbo Ndu, and Mrs. Juliana Ekwerem. Raised in a home rooted in discipline, cultural values, and spiritual awareness, she developed early interests in writing, caregiving, and purposeful living.
+Ekwerem Agatha Ogechukwu Lilian was born on October 24, 2001, in Enugu State, Nigeria, into the respected family of Mr. Christian Ekwerem, popularly known as Ozo Igbo Ndu. Raised in a home rooted in discipline, cultural values, and spiritual awareness, she developed early interests in writing, caregiving, and purposeful living.
 
 Her upbringing instilled in her a strong sense of compassion and responsibility toward others, which later shaped her vocation as both a missionary and caregiver.
 
