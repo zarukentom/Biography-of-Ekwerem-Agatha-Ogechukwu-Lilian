@@ -66,3 +66,5 @@ Legacy and Influence
 As a young figure of achievement within the GOA CS-VM Digital Nation, Ekwerem Agatha Ogechukwu Lilian represents a generation committed to building a future shaped by spirituality, education, and humanitarian service.
 
 Her journey illustrates how dedication to faith, learning, and compassion can create a lasting impact within both physical communities and emerging digital societies.
+
+https://goacommunityservices.com/biography-of-ekwerem-agatha-ogechukwu-lilian
